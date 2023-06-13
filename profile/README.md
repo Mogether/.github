@@ -12,7 +12,7 @@
 
 ### <a href="">📑 트러블슛 안내서</a>
 
-### <a href="">📑 이벤트 스톰</a>
+### <a href="https://miro.com/app/board/uXjVM_vaXPY=/?share_link_id=564621669490">📑 이벤트 스톰</a>
 
 <br/>
 <br/>
